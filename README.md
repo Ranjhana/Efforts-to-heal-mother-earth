@@ -1,0 +1,2 @@
+# Efforts-to-heal-mother-earth
+I have notice that human have strange habit i.e. they blindly follow. As the water always flow from higher altitude to lower altitude. Same way human always looks for this ease life and ends up making problems for others. Environment getting hurt by humans actions and we are least bother. So if we start something which could help in saving environment. It will be really good. lets direct human in this direction, one or two starts then definitely 100 will follow. 
